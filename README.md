@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2Alejo0
+- 👋 Hi there, I’m Alejo
 - 👀 I’m interested in ... learn everything
 - 🌱 I’m currently learning ... program code
 - 📫 How to reach me ... pintoale209@gmail.com
